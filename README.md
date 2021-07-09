@@ -13,7 +13,7 @@
 
 - 📄 Know about my experiences [www.vamans-resume.com](www.vamans-resume.com)
 
-- ⚡ Fun facts **I played esport professional for a while and also participated in an official Guinness World Record**
+- ⚡ Fun facts **I played esport professionally for a while and also participated in an official Guinness World Record**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
